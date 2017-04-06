@@ -1,0 +1,1 @@
+# properietary_vendor_samsung
